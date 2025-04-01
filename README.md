@@ -8,6 +8,7 @@
 - [George Michael - Careless Whisper](https://www.youtube.com/watch?v=izGwDsrQ1eQ)
 - [Gerry Rafferty - Baker Street](https://www.youtube.com/watch?v=Fo6aKnRnBxM)
 - [Grupo de Baile - Patchouly](https://www.youtube.com/watch?v=1JjLmafMGnk)
+- [Gusttavo Lima - Apelido Carinhoso](https://www.youtube.com/watch?v=B9Mi1-qn_PQ)
 - [Henry Mancini - The Pink Panther Theme](https://www.youtube.com/watch?v=3Lxqjzik-8w)
 - [James Brown - Living in America](https://www.youtube.com/watch?v=c5BL4RNFr58)
 - [King Crimson - Starless](https://www.youtube.com/watch?v=OfR6_V91fG8)
