@@ -9,6 +9,7 @@
 - [Gerry Rafferty - Baker Street](https://www.youtube.com/watch?v=Fo6aKnRnBxM)
 - [Grupo de Baile - Patchouly](https://www.youtube.com/watch?v=1JjLmafMGnk)
 - [Henry Mancini - The Pink Panther Theme](https://www.youtube.com/watch?v=3Lxqjzik-8w)
+- [James Brown - Living in America](https://www.youtube.com/watch?v=c5BL4RNFr58)
 - [King Crimson - Starless](https://www.youtube.com/watch?v=OfR6_V91fG8)
 - [Madness - One Step Beyond](https://www.youtube.com/watch?v=SOJSM46nWwo)
 - [Night Court Theme Song](https://www.youtube.com/watch?v=EyKmxudCYKU)
