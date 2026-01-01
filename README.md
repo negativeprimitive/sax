@@ -3,6 +3,7 @@
 - [Chicago - Beginnings](https://www.youtube.com/watch?v=4W1bXSeaI48)
 - [Daryl Hall & John Oates - I Can't Go for That (No Can Do)](https://www.youtube.com/watch?v=ccenFp_3kq8)
 - [Daryl Hall & John Oates - Maneater](https://www.youtube.com/watch?v=yRYFKcMa_Ek)
+- [Edgar Winter Group - Frankenstein](https://www.youtube.com/watch?v=65XSHM3jlAY) ([extra](https://www.youtube.com/watch?v=8eopqz044m8))
 - [Family Guy - Don't wash the mouth piece](https://www.youtube.com/watch?v=C7FoPvmVDx8)
 - [Family Guy - Saxophone Therapy](https://www.youtube.com/watch?v=hQJ_nNwd20c)
 - [George Michael - Careless Whisper](https://www.youtube.com/watch?v=izGwDsrQ1eQ)
